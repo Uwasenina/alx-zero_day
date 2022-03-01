@@ -1,1 +1,2 @@
 My second readme
+I'M VERY EXCITED TO LEARN THIS COURSE
